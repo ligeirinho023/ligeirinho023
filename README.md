@@ -2,7 +2,7 @@
 
 **`Estudante do Ensino Médio`**
 
-Me chamo Maria Lohany Ribeiro, tenho 17 anos e sou natural de São Paulo capital. Estou cursando o terceiro ano do Ensino médio no colégio Jõao Evanngelista Costa. Atualmente, participo de simulações da ONU e estudo para o Ecame Nacional do Enisno Médio, e outros vestibulares. Sou apaixonada por geopolítica e história e pretendo cursar RElações Internacionais na USP após a conclusão do Ensino Médio.
+Me chamo Maria Lohany Ribeiro, tenho 17 anos e sou natural de São Paulo capital. Estou cursando o terceiro ano do Ensino médio no colégio Jõao Evangelista Costa. Atualmente, participo de simulações da ONU e estudo para o Exame Nacional do Enisno Médio, e outros vestibulares. Sou apaixonada por geopolítica e história e pretendo cursar RElações Internacionais na USP após a conclusão do Ensino Médio.
 
 <p align="left">
     <a href="https://www.youtube.com/@maria.rbs?sub_confirmation=1">
